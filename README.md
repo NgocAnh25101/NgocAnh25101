@@ -1,4 +1,4 @@
-- 👋 Hi, I'm Anh- A HR consultant, a headhunter, a friend who will listen to your expect and support you with suitable job.
+- 👋 Hi, I'm Anh- A HR consultant, a headhunter, and a friend who will listen to your expectations and support you get the right job.
 - 👀 II’m consistently looking for several tech positions including #front-end; #back-end; #full-stack; #PM; #BrSE; #Tester
 - 📫 Please do not hesitate to ask me for further information.
 
